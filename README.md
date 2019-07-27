@@ -1,37 +1,60 @@
-## Welcome to GitHub Pages
+## Sir Norman L. Baxter
 
-You can use the [editor on GitHub](https://github.com/lamar-frankie/sir-norman-baxter/edit/master/README.md) to maintain and preview the content for your website in Markdown files.
+### _The Regal Beagle_
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+Congratulations to you! You have been given both the honor and the privilege to share space with the great Sir Norman L. Baxter. Sir Baxter is both a scholar and a gentlemen. He has many patents to is his in the fields of engineering, math, and fire hydrant science. In  addition to his academic pursuits, Sir Baxter has a proud history of military service. He has valliantly barked at the UPS person and is a vetern of chasing the squirrles that live in the pecan tree on Dunwoody St.
 
-### Markdown
+Below you will find instructions for making the most out of your time with Sir Norman.
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
+### Feeding
 
-```markdown
-Syntax highlighted code block
+Sir Norman's body is a temple; a performance temple; a gloryious performance temple. In order to maintain his physique and the energy levels required for his life style, Sir Baxter requires 2 quality feedings per day. 
 
-# Header 1
-## Header 2
-### Header 3
+**First feeding:**
+- 1 cup of dry dog food
+- bowl of water
 
-- Bulleted
-- List
+**Second feeding**
+- 1 cup of dry dog food mixed with one packet of wet dog food
+- bowl of water
 
-1. Numbered
-2. List
+### Privy
 
-**Bold** and _Italic_ and `Code` text
+**Scheduled**
 
-[Link](url) and ![Image](src)
-```
+Sir Baxter will most likely need to use the Privy **20-25 minutes after eating**.
 
-For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
+**Unscheduled**
 
-### Jekyll Themes
+Sir Baxter may need to visit the privy intermittently. He will most likely indicate this by sniffing furnature or bannisters. When this happens it means he needs to go immediatly. 
 
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/lamar-frankie/sir-norman-baxter/settings). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
+### Walking
 
-### Support or Contact
+Sir Baxter is a natural explorer and very inquisitive about his environment. Unfortunatly, he is still recovering from his heart condition. **This means his walks should be:**
+- at a slow pace
+- no more than 10 minutes
 
-Having trouble with Pages? Check out our [documentation](https://help.github.com/categories/github-pages-basics/) or [contact support](https://github.com/contact) and we’ll help you sort it out.
+### Treats
+
+Sir Baxter is always a "good boi", but sometimes he is an even "gooder boi". When you feel that Sir Baxter is being a "gooder boi" you may reward him with treats from his treat bag as often as you like. 
+
+### Sleeping
+
+Sir Baxter will try and sleep with you. He may try to jump in the bed with you. If you are okay with this then so is he. He you are not okay with this remove him from the bed and say firmly, but gently "No". When Sir Baxter is convinced you really mean it. He will stop trying to jump into the bed.
+
+**(Optionally)** You may crate Sir Baxter when you are ready for bed if you choose. 
+
+### Crating
+
+If you plan to leave Sir Baxter alone for more than an hour, he should be crated. If you choose not to crate Sir Baxter anything left on your tables and counter tops is fair game.
+
+### Emergencies
+
+Sir Baxter is in the care of the talented professionals at VCA Animal Hospital. They are located in the Ansley Mall Shopping Center and are open 24/7
+
+VCA
+1510 Piedmont Ave SE
+Atlanta, GA 30327
+
+(404) 875-7387
+
