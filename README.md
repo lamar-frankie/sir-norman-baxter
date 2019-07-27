@@ -14,7 +14,7 @@ Sir Norman's body is a temple; a performance temple; a gloryious performance tem
 - 1 cup of dry dog food
 - bowl of water
 
-**Second feeding**
+**Second feeding:**
 - 1 cup of dry dog food mixed with one packet of wet dog food
 - bowl of water
 
