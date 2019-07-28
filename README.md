@@ -11,16 +11,20 @@ Below you will find instructions for making the most out of your time with Sir N
 Sir Norman's body is a temple; a performance temple; a glorious performance temple. In order to maintain his physique and the energy levels required for his life style, Sir Baxter requires 2 quality feedings per day. 
 
 **First feeding:**
+
 - 1 cup of dry dog food
+
 - bowl of water
 
 **Second feeding:**
+
 - 1 cup of dry dog food mixed with one packet of wet dog food
-- bowl of water
+
+- bowl of water (2 or 3 cups is fine)
 
 ### Privy
 
-**Scheduled**
+**Scheduled:**
 
 - Sir Baxter likes to go number 1 as soon as you get up.
 
@@ -28,7 +32,7 @@ Sir Norman's body is a temple; a performance temple; a glorious performance temp
 
 - Sir Baxter will most likely need to use the Privy **20-25 minutes after eating**.
 
-**Unscheduled**
+**Unscheduled:**
 
 Sir Baxter may need to visit the privy intermittently. He will most likely indicate this by sniffing furniture or banisters. When this happens it means he needs to go immediately. 
 
@@ -59,7 +63,9 @@ If you plan to leave Sir Baxter alone for more than an hour, he should be crated
 Sir Baxter is in the care of the talented professionals at VCA Animal Hospital. They are located in the Ansley Mall Shopping Center and are open 24/7
 
 VCA
+
 1510 Piedmont Ave SE
+
 Atlanta, GA 30327
 
 (404) 875-7387
