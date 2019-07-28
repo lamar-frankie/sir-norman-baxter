@@ -2,13 +2,13 @@
 
 ### _The Regal Beagle_
 
-Congratulations to you! You have been given both the honor and the privilege to share space with the great Sir Norman L. Baxter. Sir Baxter is both a scholar and a gentlemen. He has many patents to is his in the fields of engineering, math, and fire hydrant science. In  addition to his academic pursuits, Sir Baxter has a proud history of military service. He has valliantly barked at the UPS person and is a vetern of chasing the squirrles that live in the pecan tree on Dunwoody St.
+Congratulations to you! You have been given both the honor and the privilege to share space with the great Sir Norman L. Baxter. Sir Baxter is both a scholar and a gentlemen. He has many patents to is his in the fields of engineering, math, and fire hydrant science. In  addition to his academic pursuits, Sir Baxter has a proud history of military service. He has valiantly barked at the UPS person and is a veteran of chasing the squirrels that live in the pecan tree on Dunwoody St.
 
 Below you will find instructions for making the most out of your time with Sir Norman.
 
 ### Feeding
 
-Sir Norman's body is a temple; a performance temple; a gloryious performance temple. In order to maintain his physique and the energy levels required for his life style, Sir Baxter requires 2 quality feedings per day. 
+Sir Norman's body is a temple; a performance temple; a glorious performance temple. In order to maintain his physique and the energy levels required for his life style, Sir Baxter requires 2 quality feedings per day. 
 
 **First feeding:**
 - 1 cup of dry dog food
@@ -22,16 +22,22 @@ Sir Norman's body is a temple; a performance temple; a gloryious performance tem
 
 **Scheduled**
 
-Sir Baxter will most likely need to use the Privy **20-25 minutes after eating**.
+- Sir Baxter likes to go number 1 as soon as you get up.
+
+- Sir Baxter appreciates if you take him to go number 1 before you go to bed. 
+
+- Sir Baxter will most likely need to use the Privy **20-25 minutes after eating**.
 
 **Unscheduled**
 
-Sir Baxter may need to visit the privy intermittently. He will most likely indicate this by sniffing furnature or bannisters. When this happens it means he needs to go immediatly. 
+Sir Baxter may need to visit the privy intermittently. He will most likely indicate this by sniffing furniture or banisters. When this happens it means he needs to go immediately. 
 
 ### Walking
 
-Sir Baxter is a natural explorer and very inquisitive about his environment. Unfortunatly, he is still recovering from his heart condition. **This means his walks should be:**
+Sir Baxter is a natural explorer and very inquisitive about his environment. Unfortunately, he is still recovering from his heart condition. **This means his walks should be:**
+
 - at a slow pace
+
 - no more than 10 minutes
 
 ### Treats
